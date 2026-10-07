@@ -29,5 +29,4 @@ Watch this org, or write to us via [ishvaram.com](https://ishvaram.com).
 [LinkedIn](https://www.linkedin.com/company/ishvaram/) ·
 [YouTube](https://www.youtube.com/channel/UCmLGFR2IpfqgoWaHuD-L9Vg) ·
 [Instagram](https://www.instagram.com/ishvaram.in/) ·
-[Facebook](https://www.facebook.com/ishvaram.in) ·
 [Pinterest](https://www.pinterest.com/ishvaramindia/)
